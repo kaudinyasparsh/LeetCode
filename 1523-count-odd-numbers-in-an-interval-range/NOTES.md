@@ -1,1 +1,2 @@
+Just applied simple approach
 ​
